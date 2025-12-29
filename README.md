@@ -58,7 +58,8 @@ I enjoy building things, breaking them, and learning how they work — one Pytho
 ### 📫 How to reach me
 - GitHub: [@Dudu-gold](https://github.com/Dudu-gold)
 - Email: omoniyi215@gmail.com
-- contact: 08139261960
+- 📞 WhatsApp: [Chat me](https://wa.me/2348139261960)
+
 
 ---
 
